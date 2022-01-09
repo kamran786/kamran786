@@ -13,4 +13,5 @@ Here are some ideas to get you started:
      
      📱 302-729-6630
 - 😄 Pronouns: He/Him
+
 Connect to know more 😉
